@@ -34,6 +34,8 @@ bachillerato en el colegio Pedagogico Dulce Maria y I.E.D Atahualpa
 
 certificado de prescolar, primaria y bachillerato
 
+https://chatgpt.com/s/m_6a5aa3460ff08191a5a28030a0075b02 
+
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/4236fb54-982a-4bde-9ada-4e695462bab4" />
 <img width="200" height="200" alt="gif 1" src="https://github.com/user-attachments/assets/ad8a5c52-142f-4e55-a1ad-4ae76a97fdbb" />
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/ef82100f-354a-41c3-b47c-f22d4e49e143" />
