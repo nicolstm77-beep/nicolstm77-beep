@@ -36,6 +36,17 @@ certificado de prescolar, primaria y bachillerato
 
 https://chatgpt.com/s/m_6a5aa3460ff08191a5a28030a0075b02 
 
+https://chatgpt.com/s/m_6a6116bbe6c88191be687649146796e6
+
+https://chatgpt.com/s/m_6a6117e78ee481918e6b771adc1e567a
+
+https://chatgpt.com/s/m_6a61190641e081919e629f3d9a2c4ac1
+
+https://chatgpt.com/s/m_6a6119c33ce48191896e68e165502422
+
+https://chatgpt.com/s/m_6a611ac1f740819198dcbd78d3da4b39
+
+
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/4236fb54-982a-4bde-9ada-4e695462bab4" />
 <img width="200" height="200" alt="gif 1" src="https://github.com/user-attachments/assets/ad8a5c52-142f-4e55-a1ad-4ae76a97fdbb" />
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/ef82100f-354a-41c3-b47c-f22d4e49e143" />
