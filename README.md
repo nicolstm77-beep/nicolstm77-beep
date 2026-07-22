@@ -46,6 +46,8 @@ https://chatgpt.com/s/m_6a6119c33ce48191896e68e165502422
 
 https://chatgpt.com/s/m_6a611ac1f740819198dcbd78d3da4b39
 
+https://ncosmetics.github.io
+
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/4236fb54-982a-4bde-9ada-4e695462bab4" />
 <img width="200" height="200" alt="gif 1" src="https://github.com/user-attachments/assets/ad8a5c52-142f-4e55-a1ad-4ae76a97fdbb" />
